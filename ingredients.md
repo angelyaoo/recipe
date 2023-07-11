@@ -1,6 +1,6 @@
 Ingredients:
 Cocoa powder
 Condensed milk
-Coconut oil
+Coconut oil (or butter)
 Milk (or subsitute)
-Optional toppings (almonds, freezedried strawberries...) 
+Optional toppings (almonds, freezedried strawberries...)
